@@ -1,5 +1,6 @@
 # perspectiva-dado
 repositório para as atividades do curso perspectivas em ciências de dados
 
-
-não sei o que escrever 
+a de amor
+b de baixinho 
+c de coração
