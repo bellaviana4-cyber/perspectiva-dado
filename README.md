@@ -1,3 +1,5 @@
 # perspectiva-dado
 repositório para as atividades do curso perspectivas em ciências de dados
-oiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+
+
+não sei o que escrever 
