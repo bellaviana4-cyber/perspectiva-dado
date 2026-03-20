@@ -20,3 +20,5 @@ u de universo
 v de vitória
 x o que que é? é XUXA
 e z é zum zum zum zum zum 
+
+o abcdário da xuxa, vamos aprender
